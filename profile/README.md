@@ -1,3 +1,3 @@
 ## Rúbrica
 
-https://docs.google.com/document/d/197Ja-6l3lEKAnF8UEoUT6MUflopfuMOx6KEO0f3YSyM/edit
+[Presentación de venta proyecto DevOps](https://fi365-my.sharepoint.com/:p:/g/personal/jb276150_fi365_ort_edu_uy/EVLNZ1vpfSRCqJdqTxAi_s4BRQ2I2mshpfFmgeJOFloMPA?rtime=AKqnrk-q3Eg)
